@@ -1,2 +1,2 @@
-www.ariverdomcollection.com
+ariverdomcollection.com
 website
